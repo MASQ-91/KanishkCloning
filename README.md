@@ -4,5 +4,4 @@ i am currenty ascendent 2 player and growing more day by day.
 asfaq chutiya authentications se game khelta h bsdka
 1. this is king bro duniya ka papa.
 
-2. abb ki baar me add ker rha hu isko macbook ke saath,    Yooooo.
-3. firse kerni pad rahi h testing2 
+2. abb ki baar me add ker rha hu isko macbook ke saath,  Yooooo.
